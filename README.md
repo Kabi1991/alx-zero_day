@@ -1,1 +1,1 @@
-My first readme
+kea na bastard
